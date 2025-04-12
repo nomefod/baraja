@@ -7,6 +7,6 @@
 
 ![waiting-emoji-emoji](https://github.com/user-attachments/assets/3cc46586-f721-4357-b6ca-78c2964491a5)
 
-https://media1.tenor.com/m/cSvzFiZpNSUAAAAd/emoji.gif
+https://tenor.com/pt-BR/view/wow-gif-8862886876043404459
 
 https://www.youtube.com/@EversonZoioo
