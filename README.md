@@ -7,7 +7,6 @@
 
 ![waiting-emoji-emoji](https://github.com/user-attachments/assets/3cc46586-f721-4357-b6ca-78c2964491a5)!
 
-[![https://media.tenor.com/ev9Mp_sJ5KsAAAAj/wow.gif]
-](https://media.tenor.com/ev9Mp_sJ5KsAAAAj/wow.gif)
+https://i.pinimg.com/736x/6b/14/06/6b14067e3df8b1fedb1969ca9c2919b7.jpg
 
 https://www.youtube.com/@EversonZoioo
